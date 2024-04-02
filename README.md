@@ -4,7 +4,7 @@
 
 ⦿ 📧 Email **yash.aithani@gmail.com**
 
-⦿ ⚡ **Eat Code Gym Sleep Repeat**
+⦿ ⚡ **Eat Sleep Code Gym Repeat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
