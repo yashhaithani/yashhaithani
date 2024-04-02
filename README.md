@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **yash.aithani@gmail.com**
 
-- ⚡ Fun fact **Eat Code Gym Repeat**
+- ⚡ **Eat Code Gym Repeat**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
